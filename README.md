@@ -1,4 +1,4 @@
-👋 Greetings, I'm Vijayaraj and i'm 16 who speak french and english // I'm thrilled to welcome you to my digital domain!
+👋 Greetings, I'm Takuro and i'm 00010001 who speak french and english // I'm thrilled to welcome you to my digital domain!
 
 🌏 I call India my home, a place filled with rich culture and vibrant landscapes, i live in france.
 
